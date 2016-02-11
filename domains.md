@@ -66,6 +66,7 @@ oui48.com
 performemail.net
 piclala.fr
 plansmalins.ovh
+potanat.fr
 Projet-CCi.fr
 pru06.com
 ralati.com
